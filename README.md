@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **rajkeshri2323@gmail.com**
 
-- ⚡ Fun fact **I think my sense of humor is more than the Funniest...**
+- ⚡ Fun fact **I think my sense of humor is more than the Funniest one...**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
